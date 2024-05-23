@@ -1,0 +1,1 @@
+# BCS_Secy_task5_partial
